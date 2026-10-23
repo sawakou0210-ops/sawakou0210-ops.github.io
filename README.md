@@ -1,1 +1,0 @@
-# sawakou0210-ops.github.io
